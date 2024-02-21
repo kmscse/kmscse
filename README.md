@@ -1,5 +1,5 @@
 ### Hi there 👋
-😊 I have possessed a strong foundation in Civil and Structural Engineering, coupled with a keen interest in Coding.
+😊 Structural Engineer, Philanthropist, and Coding Enthusiast
 <!--
 **kmscse/kmscse** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
