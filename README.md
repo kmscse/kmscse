@@ -1,5 +1,5 @@
 ### Hi there 👋
-😊 Structural Engineer, Philanthropist, and Coding Enthusiast
+🤵‍♂️ A passionate coder with a deeply introverted nature
 <!--
 **kmscse/kmscse** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
