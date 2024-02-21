@@ -5,7 +5,8 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...😊
+😊 I have possessed a strong foundation in Civil and Structural Engineering, coupled with a keen interest in Coding.
+- 🔭 I’m currently doing research 
 - 🌱 I’m currently learning ...
 - 👯 I’m looking to collaborate on ...
 - 🤔 I’m looking for help with ...
