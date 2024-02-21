@@ -1,5 +1,5 @@
 ### Hi there 👋
-🤵‍♂️ A passionate coder with a deeply introverted nature
+🤵‍♂️ A passionate coder with a deeply introverted nature representing Inland Taipan.
 <!--
 **kmscse/kmscse** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
